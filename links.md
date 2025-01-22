@@ -1,0 +1,2 @@
+- https://discord.com/channels/1127340805741359164/1328018060074024970
+- https://github.com/JeffryGonzalez?tab=repositories
